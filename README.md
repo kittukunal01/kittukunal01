@@ -2,7 +2,7 @@
 - 👀 I’m interested in Bot Making 
 - 🌱 I’m currently learning CS
 - 📫 contact me on telegram
-I L❤️VE Y🙃U.....
+- I L❤️VE Y🙃U.....
 
 ## 💜 𝗚𝗜𝗧𝗛𝗨𝗕 •••
 
