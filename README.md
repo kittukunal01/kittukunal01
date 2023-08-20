@@ -2,7 +2,7 @@
 - 👀 I’m interested in Bot Making 
 - 🌱 I’m currently learning CS
 - 📫 contact me on telegram
-  ![Typing SVG] (https://readme-ty![Typing SVG](https://readme-typing-svg.herokuapp.com/?lines=𝗜+𝗔𝗠+KISSU!!!!!;CHHOTA+RAJASTHANI+CODER!!!!!!!!!)</p>
+I L❤️VE Y🙃U.....
 
 ## 💜 𝗚𝗜𝗧𝗛𝗨𝗕 •••
 
